@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mohamed Irfan
-- 👀 I’m interested in Android construction      
-- 🌱 I’m currently Working in Promeathen Software Solution
+- 👀 I’m interested in Android and IOS construction      
+- 🌱 I’m currently Working in Thikse Software Solutions
 - 💞️ I’m looking to collaborate on verious dept like branding,bulding a intresting community
 - 📫 How to reach me This is My Email id mohamedirfanmohamed8@gmail.com
 - 😄 Pronouns: ...
